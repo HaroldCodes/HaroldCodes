@@ -1,7 +1,5 @@
-- 👋 Hi, I’m @HaroldCodes
-- 👀 I’m interested in Machine Learning, AI, Python, Automation, Cars and Code
-- 🌱 I’m currently learning ... 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-
+Z
+  O 
+    K
+    
+      U
